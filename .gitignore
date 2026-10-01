@@ -1,0 +1,6 @@
+.DS_Store
+**/.DS_Store
+
+# Keep phone-specific Obsidian configuration local for now
+.obsidian/
+
