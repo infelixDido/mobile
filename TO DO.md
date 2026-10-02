@@ -8,3 +8,4 @@ Eventually:
 - consider moving three js website to svelte
 - Do a 3js neural network project
 - Create a Calendar and a Task system
+
