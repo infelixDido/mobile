@@ -1,3 +1,8 @@
+Pick an aesthetic for my phone wallpaper + apps
+
+Tonight: 
+Lamp / Pen Board / Posters : play it by ear
+
 Summer Activities:
 
 Learn to juggle 5 balls (Identity goal: Do 20 minutes a day every day)
