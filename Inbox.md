@@ -51,3 +51,30 @@ Call people: Ben, John, Nick, friends, family, etc.
 The idea that adolescence is essential time for learning things (Feynman, Weil, Saint-Exupéry)
 
 Attention is all you need, Simone Weil's attention
+
+
+10 minutes of stretching
+
+30 seconds pancake 
+Break
+30 seconds pancake 
+
+30 seconds figure 4
+Other side
+Repeat
+Other side
+
+30 seconds lunge
+Other side
+Repeat
+Other side
+
+30 seconds 
+
+Carolina, Aditya, Hans
+![[Pasted image 20261007190943.png]]
+https://www.instagram.com/reel/DcCO_SSNtu2/?stkn=czlrOHNodTdnemk5
+
+Mondays Wednesday after 8pm Epis choir Nancy, Alex, Jan
+
+Garden path sentences
