@@ -1,3 +1,7 @@
+Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on success and move on to another 
+
+[[Avoiding hard things can make life harder not easier]]
+
 Pick an aesthetic for my phone wallpaper + apps
 
 Tonight: 
@@ -78,3 +82,6 @@ https://www.instagram.com/reel/DcCO_SSNtu2/?stkn=czlrOHNodTdnemk5
 Mondays Wednesday after 8pm Epis choir Nancy, Alex, Jan
 
 Garden path sentences
+
+https://www.instagram.com/reel/DdRrPxnRiUR/?rpxt=ZGRsdHpoOGFqY3E1
+
