@@ -38,7 +38,6 @@ Order a chair
 Do some putnam problems
 
 
-
 Why boredom Note page?
 Things to do (endless: read book, draw, ask random anyone to play sport, practice something, etc)
 Call people: Ben, John, Nick, friends, family, etc.

@@ -1,6 +1,5 @@
 - work on svelte app fractal project and try to link to 3js site [[Svelte Fractal Showcase Website]]
 
-
 Fix up my resumé after the summer
 
 
