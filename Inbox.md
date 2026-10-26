@@ -1,3 +1,12 @@
+Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on success and move on to another 
+
+[[Avoiding hard things can make life harder not easier]]
+
+Pick an aesthetic for my phone wallpaper + apps
+
+Tonight: 
+Lamp / Pen Board / Posters : play it by ear
+
 Summer Activities:
 
 Learn to juggle 5 balls (Identity goal: Do 20 minutes a day every day)
@@ -45,3 +54,33 @@ Call people: Ben, John, Nick, friends, family, etc.
 The idea that adolescence is essential time for learning things (Feynman, Weil, Saint-Exupéry)
 
 Attention is all you need, Simone Weil's attention
+
+
+10 minutes of stretching
+
+30 seconds pancake 
+Break
+30 seconds pancake 
+
+30 seconds figure 4
+Other side
+Repeat
+Other side
+
+30 seconds lunge
+Other side
+Repeat
+Other side
+
+30 seconds 
+
+Carolina, Aditya, Hans
+![[Pasted image 20261007190943.png]]
+https://www.instagram.com/reel/DcCO_SSNtu2/?stkn=czlrOHNodTdnemk5
+
+Mondays Wednesday after 8pm Epis choir Nancy, Alex, Jan
+
+Garden path sentences
+
+https://www.instagram.com/reel/DdRrPxnRiUR/?rpxt=ZGRsdHpoOGFqY3E1
+
