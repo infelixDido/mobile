@@ -1,8 +1,24 @@
 Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on success and move on to another 
 
+
 [[Avoiding hard things can make life harder not easier]]
 
 Pick an aesthetic for my phone wallpaper + apps
+
+People care that people care, scarcity of human attention, I don't see streamers going away, especially the ones that build parasocial relationships
+Captures all of my writing and work on computer by video or keystroke and used as proof of work
+
+Easy access to the ability to learn things is creating false expectations in ourselves to already be good
+People want a place to share being bad at something and growing in it
+ars celerat artem, however, now art can be empty, it's a weird give and take between aesthetics of imperfection and perfectionism
+
+
+An app to EASILY turn custom drawings (like my little notebook drawings) into little icons my digital writing,
+to easily make custom fonts with handwritting
+
+Paste all lecture notes into Obsidian from HIST-1099 discussion and download files at end of semester
+
+
 
 Tonight: 
 Lamp / Pen Board / Posters : play it by ear
