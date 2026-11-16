@@ -105,3 +105,5 @@ https://www.instagram.com/reel/DdRrPxnRiUR/?rpxt=ZGRsdHpoOGFqY3E1
 Things to talk about:
 How do I speak in a group chat 
 Make plans right now during the talk for thanksgiving
+
+Worked again on the obsidian git syncing
