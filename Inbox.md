@@ -1,4 +1,20 @@
-Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on success and move on to another 
+Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on successes 
+and move on to another 
+
+Alissa pumpkin painting
+Do Italian history notes
+Do Italian history Wednesday reading
+Go to Magis meeting Lau 2 3:15
+Finish Laundry + Clean room
+
+When ideas stop flowing, just move and change scenery
+I can often come up with things to do faster than doing them, dstrdon’t write stuff down if they artificially breaks the loop w/o doing the thing
+
+
+I need to transfer Notion to obsidian
+I need to work on keybindings ( a test of working on something till completion, a test of how well I control my tools )
+Work on a workout log that works (remember though it’s the workout that matters not the note)
+
 
 [[Avoiding hard things can make life harder not easier]]
 
@@ -82,6 +98,10 @@ https://www.instagram.com/reel/DcCO_SSNtu2/?stkn=czlrOHNodTdnemk5
 Mondays Wednesday after 8pm Epis choir Nancy, Alex, Jan
 
 Garden path sentences
-
+K
 https://www.instagram.com/reel/DdRrPxnRiUR/?rpxt=ZGRsdHpoOGFqY3E1
 
+
+Things to talk about:
+How do I speak in a group chat 
+Make plans right now  during the talk for thanksgiving m
