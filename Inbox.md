@@ -8,7 +8,7 @@ Go to Magis meeting Lau 2 3:15
 Finish Laundry + Clean room
 
 When ideas stop flowing, just move and change scenery
-I can often come up with things to do faster than doing them, dstrdon’t write stuff down if they artificially breaks the loop w/o doing the thing
+I can often come up with things to do faster than doing them, write stuff down if they artificially breaks the loop w/o doing the thing
 
 
 I need to transfer Notion to obsidian
@@ -104,4 +104,4 @@ https://www.instagram.com/reel/DdRrPxnRiUR/?rpxt=ZGRsdHpoOGFqY3E1
 
 Things to talk about:
 How do I speak in a group chat 
-Make plans right now  during the talk for thanksgiving m
+Make plans right now during the talk for thanksgiving
