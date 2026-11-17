@@ -1,5 +1,4 @@
-Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on successes 
-and move on to another 
+Create conversation continuation questions and make them open loops, ie have one that I try to work in and when I do check it off, comment on successes and move on to another 
 
 Alissa pumpkin painting
 Do Italian history notes
@@ -14,7 +13,6 @@ I can often come up with things to do faster than doing them, write stuff down i
 I need to transfer Notion to obsidian
 I need to work on keybindings ( a test of working on something till completion, a test of how well I control my tools )
 Work on a workout log that works (remember though it’s the workout that matters not the note)
-
 
 [[Avoiding hard things can make life harder not easier]]
 
