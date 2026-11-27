@@ -105,3 +105,5 @@ How do I speak in a group chat
 Make plans right now during the talk for thanksgiving
 
 Worked again on the obsidian git syncing
+
+A programming that takes your contacts and converts selected ones into markdown files
