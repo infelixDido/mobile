@@ -9,8 +9,6 @@ Eventually:
 Framework 13 pro ~$1800
 - I am thinking purple keyboard with two purple expansion ports but black chassis, so if I ever want to do all lavendar it is just one swap but it still feels customized to me 
 
-
-ip987
 Printer
 Piano
 
